@@ -55,9 +55,9 @@ The analysis highlights both achievements and challenges in Nigeria’s healthca
 ## 👤 Author
 
 **Opeyemi Morakinyo**  
-📧 [Email](mailto:opeyemi.morakinyo@email.com)  
-🔗 [LinkedIn](https://linkedin.com/in/opeyemi-morakinyo)  
-💻 [GitHub](https://github.com/opeyemianalyst)
+📧 [Email](mailto:yemigunju0@gmail.com)  
+🔗 [LinkedIn](https://linkedin.com/in/opeyemimorakinyo)  
+💻 [GitHub](https://github.com/Yemigunju)
 
 ---
 
